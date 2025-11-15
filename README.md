@@ -1,6 +1,6 @@
 ## harper lind 🐟
 
-#### ✍️ I’m currently working on macbeth at urban school
-#### 📫 harperglind@gmail.com
-#### 😄 they/them
 #### ⚡ theatrical designer, writer
+#### 😄 they/them
+#### 📫 reach me at harperglind at gmail dot com
+#### ✍️ current project: macbeth at urban school
